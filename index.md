@@ -9,4 +9,6 @@ I love playing tennis!
 One of the social media platforms I use the most is Instagram.
 [My account](https://www.instagram.com/anaghashankarr/)
 
+Some things I've done other than playing tennis are playing the violin for 7 years, girl scouts for 6 years, and piano for 5 years!
+
 I hope you enjoyed learning a little bit about me!
